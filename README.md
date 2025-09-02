@@ -1,1 +1,1 @@
-Tutorial : https://youtu.be/JbVSUPz-tnM
+🔗 JOIN : https://discord.gg/RXSh8MpsZA
